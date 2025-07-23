@@ -1,4 +1,4 @@
-## Hi there 👋
+<img width="736" height="325" alt="Image" src="https://github.com/user-attachments/assets/b66ce93d-3ee2-44a6-a1b9-a7d46c1d414c" />
 
 <!--
 **h4zel0is/h4zel0is** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
