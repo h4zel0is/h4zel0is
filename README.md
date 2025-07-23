@@ -12,3 +12,7 @@ I also makes arts and a lot of fanarts! i might create my twt acc soon for it (â
 Please don't show an interest at me because i already have a lover <33
 
 I'm always sitting with my friends with this user 'h4zel0is'! don't be afraid to interact with me because i never bite and wanting more friends !! 
+
+the fandom im in -> Alien Stage, Hoyoverse (genshin, star rai, zzz), Love and Deepspace, MHA, The Summer Hikaru Died, Sakamoto Days, Wind Breaker, Historical Manhwa Community, ORV, Lost in the Clouds, Oneroom TA, BSD, Project Sekai, Twisted Wonderland, Mystic Messenger, Obey Me, Tokyo Debunker, Kpop Demon Hunter, MXTX (mdzs, svsss, tgcf), 2ha, little mushroom, lord of the mysteries, manhua community, all of the villainess story (manhua/manhwa/manga), one piece, frieren, fate/, spyxfamily and 99+ because there's a lot of them TT
+
+<img width="1846" height="1000" alt="Image" src="https://github.com/user-attachments/assets/0fe78f74-45b1-4b6d-8bc9-6d9eea4eda13" />
