@@ -5,13 +5,23 @@ Hello ! Welcome to my profile ! Make sure to read things down there before inter
 𝗜𝗡𝗧𝗥𝗢𝗗𝗨𝗖𝗧𝗜𝗢𝗡
 
 ⋮    𝘽𝙖𝙨𝙞𝙘 𝙞𝙣𝙛𝙤
+
 ⌗ Hazelois/ Kyeshi/ Haneul/ Louis
+
 ⌗ He/him • INTP • ♒• Pansexual
+
 ⌗ 08 Liner • 17
+
 ⌗ ENG/FILO 🇵🇭
+
 ⌗ Wife: Zevi 🥹💓
 
+
+
+
+
 ⋮     𝘽𝙀𝙁𝙊𝙍𝙀 𝙔𝙊𝙐 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏
+
 ✿ When making friends, i tend to get awkward first because I don't know your interest and things we have in common so i apologize about that.
 
 ✿ I'm always afk and most of the times i forget to reply to all of people who whispered on me. I'm so sorry omg TT
@@ -22,7 +32,9 @@ Hello ! Welcome to my profile ! Make sure to read things down there before inter
 
 ✿ It's okay to match ponies with me but don't ever ship me with someone or with my friends~ I'm already taken and i have a loving wife :33 let's respect that atleast. <33
 
+
 ⋮     𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏
+
 メ most common thing, racist people who loves to use n-word for fun! I tend to avoid such people.
 
 メ people who likes to ragebait for fun too. sorry but please know your limits, some of you actually crossing the line and getting too personal which is not okay.
@@ -33,11 +45,14 @@ Hello ! Welcome to my profile ! Make sure to read things down there before inter
 
 メ shamers—any kind of shamers. Bodyshamers please stay away from me, same goes with faceshamers too.
 
+
 ⋮    𝘼𝙙𝙙𝙞𝙩𝙞𝙤𝙣𝙖𝙡 𝙞𝙣𝙛𝙤 
+
 ★ I used four names based on my friends who have known me these years through my identity! So you can call me whatever you're comfortable with!
 𐔌 haze, kye, han, lou is the nn i used
 
 ★ I'm pretty inconsistent when making ponies, I'm having a hard time to keep up on what kind of style i should do because I'm easily dissatisfied with whatever i make. That's why don't copy my ponies please~ it's so hard to maintain one style—let alone work hard on it TT
+
 
 
 !!     𝐅𝐀𝐍𝐃𝐎𝐌𝐒     !!
@@ -55,7 +70,10 @@ M O R E: Hoyoverse, Manhua and Webtoon community, Tokyo Debunkers, Project Sekai
 
 
 ＳＨＩＰＳ!
+
 ; i ship these people based on my preference and liking to the vibe. genshin and hsr...
+
+
 
 Xiaother - it's been years since i began shipping the two of them! It's just that they're so cute mb..
 
@@ -75,7 +93,10 @@ Pixelshark - THESE TWO ARE ABSOLUTELY THE BEST AND SO CUTE
 
 Kaeluc shippers pls dont int with me ❤️
 
+
+
 S T A R  R A I L  S H I P S
+
 -> Trabilblazer with everyone heh 🤑
 
 I love to ship Dan Heng and March Platonically!! These two adorbs TT
