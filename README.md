@@ -90,6 +90,8 @@ Anaxa x Aglaea - I SHIP THESE TWO I FEAR
 
 Dan Heng x Hyacine - their moments are so cute but dw i lowk ship them
 
+Phairene enjoyers? pls dni thanks ☺️💥💥❤️❤️
+
 Erm for Zzz?
 
 You could say... Me x Wise forever 
