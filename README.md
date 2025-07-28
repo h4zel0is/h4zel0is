@@ -119,5 +119,12 @@ You could say... Me x Wise forever
 
 And LYCAON X HUGO FOREEEVEEEERRR
 
+LAST IMPORTANT NOT3. I DON'T FW MCS HAREM—ESP AETHER AND LUMINE NO MATTER WHAT THE GENDER IS.....!! ts makes me uncomfortable that's why. aether/lumine x the boys? no. aether/lumine and the girls? no.
+
+I.HATE.HAREM.SO.MUCH
+
+I'm oky with poly but harem? that's a different talk. 🧑‍🦯
+
 that's all bye
+
 <img width="1846" height="1000" alt="Image" src="https://github.com/user-attachments/assets/0fe78f74-45b1-4b6d-8bc9-6d9eea4eda13" />
