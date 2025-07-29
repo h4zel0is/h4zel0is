@@ -53,6 +53,8 @@ Hello ! Welcome to my profile ! Make sure to read things down there before inter
 
 ★ I'm pretty inconsistent when making ponies, I'm having a hard time to keep up on what kind of style i should do because I'm easily dissatisfied with whatever i make. That's why don't copy my ponies please~ it's so hard to maintain one style—let alone work hard on it TT
 
+★ Feel free to match skins with me and to cuddles with me! just make sure to ask first !! I'm a big cuddle guy so I don't mind people cuddling with me. <33
+
 
 
 !!     𝐅𝐀𝐍𝐃𝐎𝐌𝐒     !!
