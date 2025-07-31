@@ -70,63 +70,6 @@ M A N H W A : there's actually a lot but I'll be naming my favorites one..
 
 M O R E: Hoyoverse, Manhua and Webtoon community, Tokyo Debunkers, Project Sekai, An Elmwood Trails, Artist Community..!!
 
-
-ＳＨＩＰＳ!
-
-; i ship these people based on my preference and liking to the vibe. genshin and hsr...
-
-
-
-Xiaother - it's been years since i began shipping the two of them! It's just that they're so cute mb..
-
-Dainlumi - I love the tragic headcanon in this one where Lumine is the abyss princess and then Dainsleif one sided feeling.
-
-Xingyun - THE MOST POPULAR AND ADORABLE SHIPP KYAAH
-
-Fischnet - these two are so cute and their steve is literally Razor.
-
-GuiLi - omg i have mixed ship with this one bcs Guizhong x Zhongli or Madame Ping because of their story 💔
-
-Kavetham - absolutely 100% yes
-
-Pixelshark - THESE TWO ARE ABSOLUTELY THE BEST AND SO CUTE
-
--> there's actually more of genshin but I won't list all of them
-
-Kaeluc shippers pls dont int with me ❤️
-
-
-
-S T A R  R A I L  S H I P S
-
--> Trabilblazer with everyone heh 🤑
-
-I love to ship Dan Heng and March Platonically!! These two adorbs TT
-
-Yinyue X Blade - i see it.. the tragic love.. heh
-
-Ratiorine - well i cant deny this one
-
-Phaidei - I don't need to say anything abt this...
-
-Anaxa x Aglaea - I SHIP THESE TWO I FEAR
-
-Dan Heng x Hyacine - their moments are so cute but dw i lowk ship them
-
-Phairene enjoyers? pls dni thanks ☺️💥💥❤️❤️
-
-Erm for Zzz?
-
-You could say... Me x Wise forever 
-
-And LYCAON X HUGO FOREEEVEEEERRR
-
-LAST IMPORTANT NOT3. I DON'T FW MCS HAREM—ESP AETHER AND LUMINE NO MATTER WHAT THE GENDER IS.....!! ts makes me uncomfortable that's why. aether/lumine x the boys? no. aether/lumine and the girls? no.
-
-I.HATE.HAREM.SO.MUCH
-
-I'm oky with poly but harem? that's a different talk. 🧑‍🦯
-
-that's all bye
+will.. add more detail soon..
 
 <img width="1846" height="1000" alt="Image" src="https://github.com/user-attachments/assets/0fe78f74-45b1-4b6d-8bc9-6d9eea4eda13" />
