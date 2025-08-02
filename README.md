@@ -4,10 +4,15 @@ Hello ! Welcome to my profile ! Make sure to read things down there before inter
 
 ⋮    𝘽𝙖𝙨𝙞𝙘 𝙞𝙣𝙛𝙤
 ⌗ Hazelois/ Kyeshi/ Haneul/ Louis
+
 ⌗ He/him • INTP • ♒• Pansexual
+
 ⌗ 08 Liner • 17
+
 ⌗ ENG/FILO 🇵🇭
+
 ⌗ Wife: Zevi 🥹💓
+
 
 ⋮     𝘽𝙀𝙁𝙊𝙍𝙀 𝙔𝙊𝙐 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏
 ✿ When making friends, i tend to get awkward first because I don't know your interest and things we have in common so i apologize about that. 
