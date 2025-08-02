@@ -52,35 +52,65 @@ M A N H W A : there's actually a lot but I'll be naming my favorites one..
 M O R E: Hoyoverse, Manhua and Webtoon community, Tokyo Debunkers, Project Sekai, An Elmwood Trails, Artist Community..!!
 
 𝖦𝖤𝖭𝖲𝖧𝖨𝖭 𝖲𝖧𝖨𝖯𝖲 💞
+
 𝙭𝙞𝙖𝙤𝙩𝙝𝙚𝙧 - I'm a biggest xiaother enjoyer and I've been shipping these two since 2021 :P
+
 𐔌 multiship-> xiaolumi and xiaoven ! 😺
 
+
+
 𝙙𝙖𝙞𝙣𝙡𝙪𝙢𝙞 - I.. ship these two so much..! especially Abyssal Lumine because their dynamic is unrequited love.. haha 🥹
+
 𐔌 multiship-> chilumi and jehtlumi (peak) ! 😺
 
+
+
 𝙟𝙚𝙖𝙣𝙡𝙪𝙘 - erm.. jeanluc enjoyer since 2021 too..!! 🤓☝️ 
+
 𐔌 multiship-> none.. I can't find any vibe sorry.
 
+
+
 𝙛𝙞𝙨𝙘𝙝𝙣𝙚𝙩 - i love the vibe and difference of these two 🥹💞 my precious bb!
+
 𐔌 multiship-> no more..! razor is their steve. 😺
 
+
+
 𝙭𝙞𝙣𝙜𝙮𝙪𝙣 - my babies !! I've been shipping them since 2022 :D hehe i love these two sm~
+
 𐔌 multiship-> none..! xiangling is the steve. 😺
 
+
+
 𝙜𝙪𝙞𝙡𝙞 - i smell some tragic love here... 😥
+
 𐔌 multiship-> guiping and zhongchi(then). 🥀
 
+
+
 𝙗𝙚𝙞𝙜𝙪𝙖𝙣𝙜 - heh.. I've been shipping these two since their reveal when genshin was old back then.. 🔥
+
 𐔌 multiship-> none...!!!
 
+
+
 𝙠𝙖𝙯𝙪𝙝𝙚𝙞 - i love these two so much <33 muhehe my two anemo pathetic babies. 🥹💞
+
 𐔌 multiship-> kazuscara (then not anymore).
 
+
+
 𝙚𝙞𝙢𝙞𝙠𝙤 - i mean... why not!? 😽
+
 𐔌 multiship-> none...!
 
+
+
 𝙠𝙤𝙠𝙤𝙧𝙤𝙪 - kokomi and gorou hehe these two are so very cute !!!
+
 𐔌 multiship-> none...!
+
 
 𝙏𝙃𝙊𝙈𝘼𝙏𝙊 𝘼𝙉𝘿 𝙏𝙃𝙊𝙈𝘼𝙔𝘼 PEAAK🔥
 
